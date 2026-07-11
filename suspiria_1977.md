@@ -1,7 +1,3 @@
-Suspiria 1977
-
-July 11, 2026
-
 Suspiria was certainly a vibe, but that's about it. I found everything else about the movie to be quite lacking. 
 
 To start with the good. The visuals were very cool, with the colors especially popping in almost every scene. The architecture was interesting and made almost every scene captivating to look at on its own. The music and visuals together capture the tone the movie tries to set, but that tone is quite monotonous. When our host mentioned there was an entire album composed of the soundtrack, the instant unanimous response was asking, "There's more than one song in this movie?" The main theme seems to repeat on loop in every single scene, pausing in a seemingly comedic fashion occasionally when a door is closed, only to start back up about five seconds later. 
